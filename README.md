@@ -1,1 +1,1 @@
-# Class-34-Activity
+# C34-Template-SA-in-class
